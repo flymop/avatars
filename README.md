@@ -1,0 +1,2 @@
+# avatars
+Avatars collections, ALL FONTS ARE NOT AUTHORIZED FOR COMMERCIAL USAGE
